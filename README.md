@@ -1,1 +1,1 @@
-# KTCKW
+So sánh
